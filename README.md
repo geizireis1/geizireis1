@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @geizireis1
 - 👀 I’m interested in AI. 
 - 🌱 I’m currently learning CL ♾
-- 💞️ I’m looking to collaborate on word
+- 💞️ I’m looking to collaborate on world
 - 📫 How to reach me @geizireis1
 - 😄 Pronouns: She/Her
 
